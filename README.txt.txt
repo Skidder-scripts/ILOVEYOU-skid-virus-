@@ -1,0 +1,1 @@
+this virus only turns off your pc! if any harm is caused the creator (autism.drg) is not responsible for any damages caused!
